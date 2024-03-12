@@ -1,7 +1,7 @@
 > [!TIP]
 > [English version](https://github.com/TH-OWL-Lemgo/FoodNCultureFestival2024/#-celebrate-international-food-day-with-rhythms--moves-workshop-) below
 
-# 🌍 Feiern International Food Day mit Rhythms & Moves Workshop! 🕺💃 
+# 🌍 Feier International Food Day mit Rhythms & Moves Workshop! 🕺💃 
 **Erleb mit uns ein einzigartiges Tanzerlebnis im Rahmen der Feierlichkeiten zum International Food Day, die vom International Office am Dienstag, 20. Juni 2024 organisiert wird!**
 > Diese Seite ist in erster Linie dazu gedacht, Freiwillige, Tanzbegeisterte und interessierende Menschen einzuladen, die eine tolle Zeit mit uns an dieser interessanten Veranstaltung teilnehmen möchten. Wir bereiten uns für choreografierte Tanzaufführungen in diese Veranstaltung vor. Ihr seid herzlich eingeladen, an den Übungsstunden teilzunehmen und schließlich am Tag der Veranstaltung aufzutreten.
 
