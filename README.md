@@ -1,5 +1,5 @@
 > [!TIP]
-> [English version](https://github.com/AStA-Lemgo/FoodNCultureFestival2024/edit/main/README.md#-celebrate-international-food-day-with-rhythms--moves-workshop-) below
+> [English version](https://github.com/TH-OWL-Lemgo/FoodNCultureFestival2024/edit/main/README.md#-celebrate-international-food-day-with-rhythms--moves-workshop-) below
 
 # 🌍 Feiern International Food Day mit Rhythms & Moves Workshop! 🕺💃 
 **Erleben Sie mit uns ein einzigartiges Tanzerlebnis im Rahmen der Feierlichkeiten zum International Food Day, die vom International Office am Dienstag, 20. Juni 2024, organisiert werden!**
