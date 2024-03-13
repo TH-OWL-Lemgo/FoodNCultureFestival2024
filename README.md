@@ -11,7 +11,9 @@ Offen für alle Niveaus: Keine Tanzerfahrung? Kein Problem!
 > Dieser Workshop richtet sich an alle, auch an Personen ohne Tanzhintergrund.
 
 ## Wie?
-RSVP bis zum 10. April. Tritt einfach unserer [WhatsApp-Gruppe](https://chat.whatsapp.com/FfuQal3UD0IHbM3ELuAYD7) bei.
+RSVP bis zum 10. April. Erfüllen einfach das [Formular](https://forms.gle/NowkEqskm86G21UD7).
+> [!IMPORTANT]
+> Limitierte Plätze verfügbar! Sicher dich jetzt deinen Platz – First Come, First Served
 
 ## Übungszeiten?
 Flexibler Zeitplan: Tage und Zeiten werden basierend auf der Verfügbarkeit der Mehrheit festgelegt. Bleib dran für Updates!🕺💃 <br>
@@ -39,7 +41,9 @@ Open to All Levels: No dance experience? No problem!
 > This workshop is designed for everyone, including those with no dancing background. 
 
 ## How to Join?
-RSVP by 10th of April. Simply join our [WhatsApp group](https://chat.whatsapp.com/FfuQal3UD0IHbM3ELuAYD7)
+RSVP by 10th of April. Simply fill out the [form](https://forms.gle/NowkEqskm86G21UD7)
+> [!IMPORTANT]
+> Limited Spots Available! Secure Your Spot Now – First Come, First Served
 
 ## What time do we practice?
 Flexible Schedule: Days and times will be decided based on the majority's availability. Stay tuned for updates!🕺💃 <br>
