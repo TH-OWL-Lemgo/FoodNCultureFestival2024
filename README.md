@@ -29,6 +29,10 @@ Ausgewählte Tanzarten<br>
 > Egal, ob du ein erfahrener Tänzer sind oder Ihre ersten Schritte machen, dieser Workshop verspricht ein angenehmes Fest der Kultur, Bewegung und Gemeinschaft. Tanzen wir uns in ein globales kulinarisches Abenteuer! <br>
 > 🌟 Verpass nicht die Gelegenheit, durch Tanz Kontakte zu knüpfen und den International Food Day mit Stil zu feiern! 🌟
 
+> [!TIP]
+> Alle Teilnehmer des Workshops können im Rahmen des Social Engagement Program der Universität 15 `Social Credit Points` erwerben. Bitte beachten Sie, dass das Zertifikat für soziales Engagement nur am Ende eines jeden Semesters und nur dann ausgestellt werden kann, wenn alle 30 erforderlichen „Social Credits“ erworben wurden.
+> > „Social Credits“ verbessern euren Lebenslauf und sind in Stipendienprogrammen nützlich.
+
 <br><hr><br>
 
 # 🌍 Celebrate International Food Day with Rhythms & Moves Workshop! 🕺💃 
@@ -58,3 +62,7 @@ Featured Dance Styles<br>
 > [!NOTE]
 > Whether you're a seasoned dancer or taking your first steps, this workshop promises a fun-filled celebration of culture, movement, and community. Let's dance our way into a global culinary adventure! <br>
 > 🌟 Don't miss out on the chance to connect through dance and celebrate International Food Day in style! 🌟
+
+> [!TIP]
+> All participants in the workshop will be able to earn 15 `social credit points` within Univerity's Social Engagement Program. Please note that the certificate for social engagement can only be issued at the end of each semester and only when all 30 required social credits have been earned.
+> > Social credits improve your CV and are useful in scholarship programs.
